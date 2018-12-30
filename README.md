@@ -1,2 +1,2 @@
 # rafifmulia.github.io
-my personal page
+my personal page and my cv
